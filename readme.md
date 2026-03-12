@@ -1,6 +1,6 @@
 # Hi, I'm Ramisa Zahara Matin 👋
 
-💻 Computer Science Graduate | Aspiring AI & Software Developer  
+💻 Computer Science Graduate | Aspiring AI & Web Developer  
 🌱 Currently learning Python & building AI projects  
 📍 Based in Dhaka, Bangladesh  
 
