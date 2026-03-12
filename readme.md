@@ -44,6 +44,6 @@ I enjoy **exploring new technologies**, building meaningful projects, and contin
 
 ## 🌐 Connect With Me
 
-[LinkedIn](ramisa-zahara-matin-70294b107) | 📧 Email: ramisazahara@gmail.com  
+[LinkedIn](www.linkedin.com/in/ramisa-zahara-matin-70294b107) | 📧 Email: ramisazahara@gmail.com  
 
 ---
